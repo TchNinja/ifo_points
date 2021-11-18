@@ -1,3 +1,5 @@
+Please add me as an Agent Developer [Published] on Discord, my discord username is cryptoninja#7850
+
 # IFO User Points Agent
 
 ## Description
